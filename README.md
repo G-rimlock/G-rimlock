@@ -8,3 +8,11 @@
 
 <p align=center><img width="980" height="679" alt="Untitled27_20261025152531" src="https://github.com/user-attachments/assets/8c7c315f-e95d-4105-8739-d1f042595720" />
 
+<div align="Center">
+
+## ${\textsf{\color{yellow}︶︶𝐒𝗂𝗀𐓣 ꭑ𝗒 α𝗍αᑲⱺⱺ𝗄! 🦖︶︶}}$
+
+<div align="center">
+  
+[<img width="100" height="100" alt="a333e9cdd74eb7a5f31bb7a39d896ed9" src="https://github.com/user-attachments/assets/574e5b91-21a1-4056-a850-c5c3e46a6415" />](https://kinggrimlock.atabook.org/?page=1)
+
